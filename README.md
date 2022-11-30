@@ -1,1 +1,21 @@
-# arul
+JAWABAN PG UTS
+1.E
+2.E
+3.D
+4.SEBUAH
+5.C
+6.E
+7.C
+8.C
+9.B
+10.C
+11.D
+12.D
+13.C
+14.SEBUAH
+15.E
+16.D
+17.B
+18.SEBUAH
+19.D
+20.E
